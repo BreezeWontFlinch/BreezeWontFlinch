@@ -1,0 +1,3 @@
+- Hi, I'm Falling Raindrop
+- Guess my repository is gonna be concerning, ughhhh, stuff.
+- I dunno what I should lay out here so I'll conclude it like this. Lmk if you have any questions :D
